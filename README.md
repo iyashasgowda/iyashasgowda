@@ -1,4 +1,4 @@
-## Hi, Yashas Gowda 👋
+## Hi, Buddy 👋
 
 💻 Designing & scaling services @ Reliance Retail | 📲 Crafting Android apps in free time
 
